@@ -14,3 +14,12 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+## NCAT Fall 2025
+
+I am currently working on the Microsoft Git certifificate and completing my Bachelor's in Liberal Studies with an Information Technology minor.
+
+Pronouns: she/her/hers
+
+Reach me at: ijwilliams1@aggies.ncat.edu
+
+I am revamping on my UX Research and Design skills and will be earning a cerificate for both very soon.
